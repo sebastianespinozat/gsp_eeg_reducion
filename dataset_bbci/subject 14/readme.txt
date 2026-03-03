@@ -1,0 +1,1 @@
+Due to the fatigue, the subject 14 was not participated in the artifact experiment.
